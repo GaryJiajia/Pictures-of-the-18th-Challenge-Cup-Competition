@@ -1,0 +1,1 @@
+# Pictures-of-the-18th-Challenge-Cup-Competition
